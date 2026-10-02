@@ -1,4 +1,4 @@
-## Hi there 👋
+## Что вершит судьбу человечества в этом мире 👋
 
 <!--
 **akaed1nal1chn3k-beep/akaed1nal1chn3k-beep** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
